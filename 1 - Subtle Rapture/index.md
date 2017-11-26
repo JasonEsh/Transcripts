@@ -1,4 +1,4 @@
-# [#1 – Subtle Rapture](www.comfortwar.com//1-subtle-rapture/)
+# [#1 – Subtle Rapture](http://www.comfortwar.com//1-subtle-rapture/)
 
 Hi, I’d like to present an idea:
 
