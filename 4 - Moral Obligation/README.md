@@ -1,4 +1,4 @@
-# [#4 – Moral Obligation](http://www.comfortwar.com//4-moral-obligation/)
+# [#4 – Moral Obligation](http://www.comfortwar.com/4-moral-obligation/)
 
 
 Hi, I’d like to present an idea:
