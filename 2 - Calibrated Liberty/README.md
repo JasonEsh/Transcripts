@@ -1,4 +1,4 @@
-# [#2 – Calibrated Liberty](http://www.comfortwar.com//2-calibrated-liberty/)
+# [#2 – Calibrated Liberty](http://www.comfortwar.com/2-calibrated-liberty/)
 
 
 Hi, I’d like to present an idea:
